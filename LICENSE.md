@@ -1,4 +1,4 @@
-
+Enhance Adobe Photoshop for macOS with ultimate Extension for Adobe Photoshop for macOS - gradient maps and real-time preview, the #1 extension. Includes gradient maps and
 
 
 
